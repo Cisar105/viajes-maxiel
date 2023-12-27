@@ -1,1 +1,1 @@
-Agradecimiento especial a Maxiel por ser brindarme parte de sus recuerdos.
+Agradecimiento especial a Maxiel por brindarme parte de sus recuerdos.
